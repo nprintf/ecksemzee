@@ -1,4 +1,4 @@
-Hello i am known as *xms* online(you'll never get my real identity`>:)`). I publish few of programs I made on my spare time as well as one large project(hint: a game!). Aside from programming, I am also and artist and fit.
+Hello i am known as *xms* online(you'll never get my real identity`>:)`). I publish few of programs I made on my spare time as well as one large project(hint: a game!) that I have yet to release(alpha release will be available at some point). Aside from programming, I am also and artist and sportistic.
 
 here's the uneeded stats
 
